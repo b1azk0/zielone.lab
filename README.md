@@ -1,5 +1,5 @@
 # zielone.lab
-zielone laboratorium
+[zielone laboratorium](https://zielonelaboratorium.pl)
 ## [Szampon do włosów detoksykujący](https://zielonelaboratorium.pl/produkt/szampon-do-wlosow/)
 
 Szampon stworzony na bazie naturalnych i delikatnie myjących środków. Stymulujące olejki eteryczne i zielona herbata działają przeciwłupieżowo i hamują proces przetłuszczania się włosów. Proteiny owsa chronią włosy przez uszkodzeniami oraz zwiększają ich elastyczność.
